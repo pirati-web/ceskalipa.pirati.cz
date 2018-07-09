@@ -1,0 +1,1 @@
+# ceskalipa.pirati.cz
